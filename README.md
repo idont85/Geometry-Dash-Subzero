@@ -1,2 +1,2 @@
 # incha
-The Ultimate Website
+The ULTIMATE School Website!
